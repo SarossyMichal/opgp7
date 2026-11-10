@@ -1,0 +1,1 @@
+# Skúšobný projekt OPGP
